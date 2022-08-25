@@ -10,7 +10,8 @@
 
 - 📫 How to reach me **jessica.code99@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFHKezE2_E/e8wqTkWUpWquPELFuPsNnw/view?utm_content=DAFHKezE2_E&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFHKezE2_E/e8wqTkWUpWquPELFuPsNnw/view?utm_content=DAFHKezE2_E&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [Jessica Massey CV.pdf](https://github.com/jesscodify/jesscodify/files/9427104/Jessica.Massey.CV.pdf)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
