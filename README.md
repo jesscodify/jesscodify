@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **jessica.code99@gmail.com**
 
-- 📄 Know about my experiences [Jessica Massey CV.pdf](https://github.com/jesscodify/jesscodify/files/9427104/Jessica.Massey.CV.pdf)
+- 📄 Know about my experiences [Jessica Massey_Resume.pdf](https://github.com/jesscodify/jesscodify/files/10789987/Jessica.Massey_Resume.pdf)
 
 
 <h3 align="left">Connect with me:</h3>
